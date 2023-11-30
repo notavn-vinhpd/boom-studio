@@ -1,1 +1,0 @@
-# boom-studio
